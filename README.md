@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BriannaAudain1
-- 👀 I’m interested in ... Musiic 
+- 👀 I’m interested in ... Music 
 - 🌱 I’m currently learning ... Software Engineering 
 - 💞️ I’m looking to collaborate on ... Nothing at the moment 
 - 📫 How to reach me ... briannaaudain2@outlook.com 
